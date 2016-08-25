@@ -2,7 +2,6 @@
 Letty M. Winson L., Data Mining, Mentor: Jasper
 
 #Brief Description
-
 Our idea is to use data from Reddit to find words commonly associated with a certain topic. The purpose will be to find the overall opinion of any entry (sentiment analysis).
 
 # Stages
