@@ -13,3 +13,26 @@ I vouch for XXX.
 XXX is the best Ive used by far.
 For the price, you cant beat XXX.
 If you want something affordable but lasts forever, try XXX.
+I would simply recommend getting a XXX.
+I really dig XXX.
+Take a look at XXX.
+Get a XXX.
+I'd highly recommend XXX.
+Not sure if this is what your looking for, but XXX worked great for me.
+I have a XXX and have had it all through college.
+Oooooo I like this: XXX.
+XXX seems to be the best I've found so far.
+Big fan of this one: XXX.
+I stumbled across this one the other day: XXX.
+In my experience, XXX has been my go to. 
+I've really been liking XXX.
+Definitely XXX.
+XXX!
+Get yourself XXX!
+
+
+I prefer XXX personally.
+In my experience, XXX is higher quality.
+XXX is also a great choice.
+You should consider XXX as well.
+I agree, XXX is also a good pick. 
